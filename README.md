@@ -1,2 +1,2 @@
 # First-cite
-There are will bw store files for the first cite
+There are will be store files for the first cite_ECO BAGS
